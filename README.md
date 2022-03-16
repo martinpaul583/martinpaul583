@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @martinpaul583
+- 👀 I’m interested in software engineering talent
+- 🌱 I’m currently learning to creatively reach candidates
+- 💞️ I’m looking to collaborate on opportunities with Google
+- 📫 How to reach me: linkedin.com/in/paulmartiniii
